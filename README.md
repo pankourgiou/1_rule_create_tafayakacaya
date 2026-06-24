@@ -1,2 +1,2 @@
-# 1_rule_create
+# 1_rule_create_tafayakacaya
 In order to be a bit more serious and set an order as priority 1 song costs 2 Euros, An 2 hour movie costs 10 Euros, a poetry collection costs around 15-20 Euros, and simple code might cost around 1 Euro per program...In simple math piracy is nihilism, nihilism is piracy...feel free to donate...gaming should cost a negotiable price not too high...I am mr.Meerseeks  NOT God you know.
